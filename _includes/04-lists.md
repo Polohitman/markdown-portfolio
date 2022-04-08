@@ -4,3 +4,4 @@ Things that I enjoy
 * 🤯 Head
 * 🤑 Chasing that bag
 * 🏚️ Fixer uppers
+**Not in that order**
