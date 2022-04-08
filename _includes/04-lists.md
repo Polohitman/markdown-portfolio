@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+Things that I enjoy
+* ☮️ Yoga
+* 🍑 Ass
+* 🤯 Head
+* 🤑 Chasing that bag
+* 🏚️ Fixer uppers
